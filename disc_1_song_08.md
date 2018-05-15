@@ -1,8 +1,8 @@
-she's mine girl who misses much
+she's not a girl who misses much
 da da da da da da
 oh yeah
-she's like a queen with a touch of a velvet hand
-like a lizard on a window pain
+She's well-acquainted with the touch of the velvet hand
+Like a lizard on a window pane
 man in the crowd with his multicoulored mirror on his hub nail woods
 lying with eyes while his hands are busy working overtime
 a ...  impression of his wife which she eat and donated to the national trust
